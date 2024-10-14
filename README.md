@@ -1,5 +1,5 @@
 
-_ _ *HELLO !!*
+ *HELLO !!*
 
     my name is mika, but you might know me by a variety of other names (subspace, unpredi, matpat, etc etc). just call me by what you know me as ,, 
 or if its easier, the character i'm cosplaying.
@@ -11,5 +11,5 @@ or if its easier, the character i'm cosplaying.
        tldr im friendly. i promise i dont bite. just tell me if i ever overstep bounds or whatever, i don't know unless i'm told.
         i like sending friend requests to people i sit with so that i can bump into you ingame more often . if you do not accept a frq i send i will not be upset whatsoever !!
           OH RIGHT MY INTERESTS . i like phighting, roblox myths (specifically DU), bugs, regretevator, roblox in general im ngl, sleep deprived podcast.
-           ok thats it . be nice to me or i will explode plz im just a little guy _ _
+           ok thats it . be nice to me or i will explode plz im just a little guy 
 
