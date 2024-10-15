@@ -1,15 +1,9 @@
-
- *HELLO !!*
-
-    my name is mika, but you might know me by a variety of other names (subspace, unpredi, matpat, etc etc). just call me by what you know me as ,, 
-or if its easier, the character i'm cosplaying.
-    use he/him on me, please.
-    my favorite food is baklava. i don't know why i'm saying this i am just rapidly running out of things to say,,,,,,,
-    c+h !!!! even if im not there at the moment feel free to come over nd sit with me i start kicking my feet and giggling when people do that!!!
-     feel free to interact with me as well, i prefer being whispered to because otherwise i likely wont see your message otherwise. but be aware that i am incredibly awkward.
-      i have a girlfriend and i love her very much . idk i just felt like i had to say that.
-       tldr im friendly. i promise i dont bite. just tell me if i ever overstep bounds or whatever, i don't know unless i'm told.
-        i like sending friend requests to people i sit with so that i can bump into you ingame more often . if you do not accept a frq i send i will not be upset whatsoever !!
-          OH RIGHT MY INTERESTS . i like phighting, roblox myths (specifically DU), bugs, regretevator, roblox in general im ngl, sleep deprived podcast.
-           ok thats it . be nice to me or i will explode plz im just a little guy 
-
+- my name is mika, but you can call me by the character i'm cosplaying too ^^
+- i have a wonderful gf, she doesn't use pt from my knowledge but she is very real !!
+- i may seem overly affectionate / clingy at times, for that i apologize !! lmk if its too much ever
+- c+h is always welcome, and so are friend requests !! you can also talk to me too
+- i like to think i am nice to others . if i come off as cold it is not on purpose
+- i do not have any dnis. obviously bigots but what bigots are going to be near me in the 1st place
+- i'm very frequently out of it mentally. i have a busy schedule, and so i am a sleepy individual
+- i gravitate towards people i'm more acquainted with, but that doesn't mean i won't talk to you ^^
+- tldr: im nice i swear pleas come up to me
