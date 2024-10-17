@@ -7,3 +7,4 @@
 - i'm very frequently out of it mentally. i have a busy schedule, and so i am a sleepy individual
 - i gravitate towards people i'm more acquainted with, but that doesn't mean i won't talk to you ^^
 - tldr: im nice i swear pleas come up to me
+- .....pt found out about my autoclicker so i disconnect every 10 minutes or so.
