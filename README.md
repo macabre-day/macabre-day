@@ -1,3 +1,7 @@
+
+
+｡ﾟ･ ❀　ﾟ･. ｡ﾟ･ . ° . ✿ ೃ
+
 - my name is mika, but you can call me by the character i'm cosplaying too ^^
 - i have a wonderful gf, she doesn't use pt from my knowledge but she is very real !!
 - i may seem overly affectionate / clingy at times, for that i apologize !! lmk if its too much ever
