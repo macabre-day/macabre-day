@@ -3,7 +3,7 @@
 ｡ﾟ･ ❀　ﾟ･. ｡ﾟ･ . ° . ✿ ೃ
 
 - my name is mika, but you can call me by the character i'm cosplaying too ^^
-- i have a wonderful gf, she doesn't use pt from my knowledge but she is very real !!
+- i have 2 wonderful girlfriends and they make me very happy  all the time i love u vinny and vel
 - i may seem overly affectionate / clingy at times, for that i apologize !! lmk if its too much ever
 - c+h is always welcome, and so are friend requests !! you can also talk to me too
 - i like to think i am nice to others . if i come off as cold it is not on purpose
